@@ -10,7 +10,7 @@
 
 ###
 
-<p align="left">★ Bruna Simões　<br>★ 22y　　　　<br>★ F★　　　　<br>★ Brazil.</p>
+<p align="left">★ Bruna Simões　<br>★ 22y　　　　<br>★ F　　　　<br>★ Brazil.</p>
 
 ###
 
